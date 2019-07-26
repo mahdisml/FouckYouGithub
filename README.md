@@ -1,4 +1,4 @@
-# FOCKYOUGITHUB
+# FouckYouGithub
 
 Github is spreading and developing modern racism in the world.
 STOP RACISM
